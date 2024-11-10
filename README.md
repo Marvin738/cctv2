@@ -1,1 +1,1 @@
-para verificar la evidencia de la instalacion entra a la carpeta cctv y veras fotos de las reciente mantenimiento de equipo.
+para verificar la evidencia de la instalacion entra a la carpeta cctv y veras fotos de las reciente mantenimiento de equipo. como tal no tengo fotos de la instalacion de hace dos años pero tengo constante trabajo con el dueño del hotel.
